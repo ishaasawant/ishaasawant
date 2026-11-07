@@ -1,4 +1,4 @@
-# hey ! i'm isha sawant ⋆｡°✩
+# i'm isha sawant ⋆｡°✩
 
 ### 💻 aspiring full stack developer | 🎓 bsc data science graduate
 
